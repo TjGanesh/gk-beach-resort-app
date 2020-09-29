@@ -1,0 +1,1 @@
+# gk-beach-resort-app
